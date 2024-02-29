@@ -1,4 +1,4 @@
-### Just your everyday Skeletor.Just coolin. Myaaaaah
+### Just your everyday Skeletor. ☠️ Myaaaaah
 
 <!--
 **waldnzwrld/waldnzwrld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
