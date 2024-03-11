@@ -34,5 +34,22 @@ Hi, My name is Walden.
 - Prior to GitHub, I worked at New Relic, and prior to that in a remote position for Apple.
 
 
+#### As a manager
+
+As a manager my focal points encompass the following:
+
+- Win, Win, Win strategies. Identifying areas where my team, our customers, and our business are all covered and gain the greatest benefit.
+- Cross team communication and collaboration.
+- Driving success while promoting an inclusive, happy, and balanced environment. 
+
+My strategy to achieve those goals:
+
+- Trust in my team and their capabilities. Listen to, trust in, and respect their assessments and decisions.
+- Set clear and reasonable expectations for myself and the team. Honor and meet those expectations, and assist the team however possible in meeting the set expectations.
+- Open clear lines of communication between myself and managers of collaborative teams. Clearly express team needs and maintain constructive and open dialogue with any other teams that we need to interface with.
+- Tactically aligning any of my duties to coordinate and boost team members specific career focus and goals.
+- Maintaining a sense of duty, while also keeping things light friendly and fun.
+- Focusing on work / life balance. In my personal life I've always said "A happy parent is a good parent" but I believe this to be applicable in most scenarios. If you are feeling fulfilled in yourself, you will have space to promote your best self. 
+
 
  
