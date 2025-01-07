@@ -1,5 +1,9 @@
 ### Just your everyday Skeletor. ☠️ Myaaaaah
 
+After 8 years at GitHub I'm currently working at Quotient AI, trying to improve the ubiquitous experience of artifical intelligence within our lives. 
+
+From a start as a WordPress dev in 2006 to now, it's been a long wild ride!
+
 <!--
 **waldnzwrld/waldnzwrld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
