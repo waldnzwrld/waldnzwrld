@@ -1,6 +1,6 @@
 ### Just your everyday Skeletor. ☠️ Myaaaaah
 
-After 8 years at GitHub I'm currently working at Quotient AI, trying to improve the ubiquitous experience of artifical intelligence within our lives. 
+After 8 years at GitHub I'm currently focusing on building my own musical instrument company.  
 
 From a start as a WordPress dev in 2006 to now, it's been a long wild ride!
 
